@@ -2,5 +2,4 @@
 
 hi ill figure this out later i dunno how to use github (albeit me being an html nerd)
 <br><br>
-sorry to anyone who recognizes me from twitter i dont use it anymore LOL my other socials are on the 
-<br>↙️ neocities page 
+sorry to anyone who recognizes me from twitter i dont use it anymore LOL
