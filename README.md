@@ -1,7 +1,7 @@
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=basilriez&color=3f794b&style=plastic)
-<br><i>profile readme file is being used for PT... if ur here for my codes click <a href="https://github.com/basilriez/toyhouse-codes">here</a></i>
+<br><i>profile readme file is being used for PT... if ur here for my toyhouse HTML codes click <a href="https://github.com/basilriez/toyhouse-codes">here</a></i>
 
 
 hi ill figure this out soon i havent used markdown in like 4 years
