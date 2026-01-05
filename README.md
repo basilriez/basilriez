@@ -6,7 +6,7 @@
 <img src="https://ries.neocities.org/media/dividers/bluesparkles.gif">
 <br><br>
 hi ill figure this out soon i havent used markdown in like 4 years
-i dont have any good ponies rn cuz i purged them youll probablu see me playing as some shitty joke pony dont mind that
+<br>i dont have any good ponies rn cuz i purged them youll probablu see me playing as some shitty joke pony dont mind that
 
 sorry to anyone who recognizes me from twitter i dont use it anymore LOL
 
