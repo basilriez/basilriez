@@ -1,6 +1,6 @@
 <!-- GET THE HELL OUTTA HERE!!!!!!!!!!!!!!!!!!!!!!!!!!!! -->
 
-✩ +° . &nbsp; ![](https://komarev.com/ghpvc/?username=basilriez&color=3f794b&style=plastic&label=chuds)
+✩ +° . &nbsp; ![](https://komarev.com/ghpvc/?username=basilriez&color=3f794b&style=plastic&label=freaks)
 
 <p align="center"> ${\textsf{\color{#e1f8fc}profile readme file is being used for PT... if ur here for my toyhouse HTML codes click}}$ <a href="https://github.com/basilriez/toyhouse-codes">here</a>
 
