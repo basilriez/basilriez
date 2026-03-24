@@ -11,7 +11,7 @@
 <p align="center">
   ${\textsf{\color{#e1f8fc}just call me basil... he/it/she autistic lesbo}}$ <img src="https://ries.neocities.org/media/pixels/green5.gif" style="height:14px;">
 <br>
-  <img src="https://ries.neocities.org/media/pixels/blue9.gif" style="height:14px;"> ${\textsf{\color{#e1f8fc}i like utdr and tloz \#geeked }}$
+  <img src="https://ries.neocities.org/media/pixels/blue9.gif" style="height:14px;"> ${\textsf{\color{#e1f8fc}i like utdr and tloz a normal amount \#geeked }}$
   <br>
   ${\textsf{\color{#e1f8fc}this is a wip i HATE WRITING BIOGRAPHIES AGFDGDSFSD}}$
 </p>
