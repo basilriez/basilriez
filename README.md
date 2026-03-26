@@ -12,6 +12,9 @@
 ill decorate this later
   <br>call me basil he/it/she 16yo lesbo
   <br><br>
+  usually in safe server sitting @ utdr, docks, or library 
+  <br>w2i if im idle
+  <br><br>
   byi
   <br>
   im autistic and dissociative and consequently my memory is very poor so please be mindful of that when speaking to me
