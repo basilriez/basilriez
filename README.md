@@ -9,14 +9,15 @@
 <!-- ! -->
 
 <p align="center">
-  ${\textsf{\color{#e1f8fc}just call me basil... he/it/she 16yo autistic lesbo}}$ <img src="https://ries.neocities.org/media/pixels/green5.gif" style="height:14px;">
-<br>
-  <img src="https://ries.neocities.org/media/pixels/blue9.gif" style="height:14px;"> ${\textsf{\color{#e1f8fc}i like utdr and tloz a normal amount \#geeked }}$
+ill decorate this later
+  <br>call me basil he/it/she 16yo lesbo
+  <br><br>
+  byi
   <br>
-  ${\textsf{\color{#e1f8fc}this is a wip i HATE WRITING BIOGRAPHIES AGFDGDSFSD}}$
+  im autistic and dissociative and consequently my memory is very poor so please be mindful of that when speaking to me
+  <br>
+  also dont talk to me if ur profic or under 15 i will block you
 </p>
 
 <img src="https://ries.neocities.org/media/art/2026/bald.png" height="400">
-
-dont talk to me if ur profic or under 15 i will block you
 </div>
