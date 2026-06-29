@@ -10,7 +10,7 @@
 
 <p align="center">
 ill decorate this later
-  <br>call me basil he/it/she 16yo lesbo
+  <br>call me basil she/he 17yo lesbo
   <br><br>
   usually in safe server sitting @ utdr, docks, or library 
   <br>w2i if im idle
@@ -19,7 +19,7 @@ ill decorate this later
   <br>
   im autistic and dissociative and consequently my memory is very poor so please be mindful of that when speaking to me
   <br>
-  also dont talk to me if ur profic or under 15 i will block you
+  also dont talk to me if ur under 15 i will block you
 </p>
 
 <img src="https://ries.neocities.org/media/art/2026/bald.png" height="400">
