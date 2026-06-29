@@ -14,13 +14,5 @@ ill decorate this later
   <br><br>
   usually in safe server sitting @ utdr, docks, or library 
   <br>w2i if im idle
-  <br><br>
-  byi
-  <br>
-  im autistic and dissociative and consequently my memory is very poor so please be mindful of that when speaking to me
-  <br>
-  also dont talk to me if ur under 15 i will block you
 </p>
-
-<img src="https://ries.neocities.org/media/art/2026/bald.png" height="400">
 </div>
